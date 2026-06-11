@@ -1,1 +1,1 @@
-# cursed-l1fe
+# Cursed Life
